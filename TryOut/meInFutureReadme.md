@@ -8,6 +8,11 @@ Looking forward to seeing your solutions folder here
 best regards
 -Farrel in 2/18/2023
 
+Yo, its been 3 days, and i think i dont how i feel anymore, while yes, you know shes obssesed with your friend, you still didnt get a confirmation whether she's has a boyfriend or na
+
+best regards
+- Farrel in 2/21/2023
+
 OKAY SERIOUS PART, if you are asking how you get these file, its from the lipi website that has its function fully plain and got executed on button.onclick where the soal id is located lmao
 here is the function
 ```
