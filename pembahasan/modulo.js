@@ -17,3 +17,12 @@ console.log(modulo((10+17+21),9))
 // RULE 2, if a > n then a % n = (a % n) % n
 
 console.log(modulo(1987,2021))
+
+
+// sisa pembagian 1^3+2^3+3^3+........+99^3+100^3 jika di bagi oleh 7 adalah menggunakan loop
+// the rest of division 1^3+2^3+3^3+........+99^3+100^3 if divided by 7 is using loop
+let sum = 0;
+for(let i = 1; i <= 100; i++){
+    sum += Math.pow(i,3)
+}
+console.log(modulo(sum,7))
