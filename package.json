@@ -15,5 +15,8 @@
   "bugs": {
     "url": "https://github.com/MoonLGH/LatihanOSS/issues"
   },
-  "homepage": "https://github.com/MoonLGH/LatihanOSS#readme"
+  "homepage": "https://github.com/MoonLGH/LatihanOSS#readme",
+  "dependencies": {
+    "pdfkit": "^0.13.0"
+  }
 }
