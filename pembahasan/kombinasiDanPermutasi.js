@@ -34,3 +34,4 @@ function factorial(n){
 }
 
 
+console.log(((factorial(121)*factorial(41)))/(factorial(40)*factorial(120)))
