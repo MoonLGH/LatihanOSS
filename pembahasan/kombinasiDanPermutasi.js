@@ -24,14 +24,14 @@ console.log(C(10,8))
 console.log(p(4,1) * p(3,1) * p((4 - 1),1) * p((3 - 1),1))
 
 
-
 function factorial(n){
     if(n === 0){
         return 1
     }else{
         return n * factorial(n-1)
-    }
+    }a
 }
 
 
 console.log(((factorial(121)*factorial(41)))/(factorial(40)*factorial(120)))
+console.log(factorial(20))
