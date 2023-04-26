@@ -13,6 +13,14 @@ Yo, its been 3 days, and i think i dont how i feel anymore, while yes, you know 
 best regards
 - Farrel in 2/21/2023
 
+i am a liar to myself, i still like her, but why, i dont even know, bro literally, i just want this to end, like just pick either stop having feeling and keep being friend, or just wish for miracle to come and cupid does something, well i tried to first one, and that doesnt work, i still fell no matter how hard i try, my heart beat so fast rn, you know why
+if i had a chances to go back to where i started, i would just pick for me to not looking forward into a girl that has 100 redflag, or do a activity to learn more about a girl, i should've just known less, and stop my self for doing activity that makes me fell at the first place, even tho i dont even know
+i would just, play games and code, and be nerd, but as wise man said "nasi telah menjadi bubur"
+
+- 4/26/2023
+
+
+
 OKAY SERIOUS PART, if you are asking how you get these file, its from the lipi website that has its function fully plain and got executed on button.onclick where the soal id is located lmao
 here is the function
 ```
