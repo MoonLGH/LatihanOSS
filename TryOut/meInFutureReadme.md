@@ -19,6 +19,18 @@ i would just, play games and code, and be nerd, but as wise man said "nasi telah
 
 - 4/26/2023
 
+MY GUY FARREL, STOP FKING TRYING, just surrender dude, she has a bf, I REPEAT, SHE HAS A BF, how could you surrender on that first girl but not this...
+Bro the best surrender attemp of you is just stop going to her desk, EVEN THAT YOU ONLY SUCCESS FOR 3 DAYS, 3 DAYS!!,
+okay i dont know what i do anymore, this is impossible
+
+best regards 
+- Farrel 5/20/2023
+
+
+
+
+
+
 
 
 OKAY SERIOUS PART, if you are asking how you get these file, its from the lipi website that has its function fully plain and got executed on button.onclick where the soal id is located lmao
