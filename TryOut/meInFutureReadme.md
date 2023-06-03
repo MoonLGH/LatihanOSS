@@ -20,11 +20,23 @@ i would just, play games and code, and be nerd, but as wise man said "nasi telah
 - 4/26/2023
 
 MY GUY FARREL, STOP FKING TRYING, just surrender dude, she has a bf, I REPEAT, SHE HAS A BF, how could you surrender on that first girl but not this...
-Bro the best surrender attemp of you is just stop going to her desk, EVEN THAT YOU ONLY SUCCESS FOR 3 DAYS, 3 DAYS!!,
+Bro the best surrender attemp of you is just stop going to her desk, EVEN THAT YOU ONLY SUCCESS FOR 1 DAYS,1 DAYS!!,
 okay i dont know what i do anymore, this is impossible
 
 best regards 
 - Farrel 5/20/2023
+
+HOW COULD YOU FALL BRO, HOWWWWWWWWWW, YOOU KNOW FOR A FACT THAT SHE HAS A BF, WANT MORE PROOF ? LOOK AT HER BF BIO, WHAT ITS CALLED, YOU WANT TO SEE IT AGAIN ? "R.."how does that felt reading that ?
+you have answer your question from 2/21/2023, yes she had a BF
+its not her fault to be friendly rel, BUT ITS YOUR FAULT TO FALL FOR IT, also
+> Bro the best surrender attemp of you is just stop going to her desk, EVEN THAT YOU ONLY SUCCESS FOR 3 DAYS, 3 DAYS!!,
+you still remember that thing ? ye you try it again, you sucess for 2 days, a progress, but you fucking throw it on the third day, and fall, deeper
+
+IF ONLY I KNOW HOW TO NOT FALL FOR SOMEONE ELSES VOICES
+- Farrel 6/3/2023
+
+
+
 
 
 
