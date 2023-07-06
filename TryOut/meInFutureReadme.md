@@ -1,3 +1,6 @@
+
+if you ever feel like wanting to kinda curhat but dont know how, just write it all out here rel, actually ill put it on the to
+
 Hey farrel in the future you probably know why you make this file, correct, cause you need placeholder for TryOut folder, but anyways, how ways your day ?
 also quick question, do you still like that girl that has her name started with "R" in a different religion ?
 how was your day ?, oh shit i've asked that, also what do you even work now on ?, school project?
@@ -37,6 +40,19 @@ IF ONLY I KNOW HOW TO NOT FALL FOR SOMEONE ELSES VOICES
 
 
 
+ITS ME, FARREL THAT HAS A CRUSH ON AYA, by the time you writing this, you fall for this girl, you fall so deep, you should've listen to lita dude, dont freaking fall, cause this girl friendly af, YOU SHOULD'VE KNOW IT>
+ATM you writing this, lo lagi binggung, apa gw tetep suka aja ya, pesaing dia banyak banget tai, apa gw harus nyerah aja ya, gw juga ga mau sebenernya kejadian gini lagi, 
+Surrender from 812 is a good thing rel, now the fucking problem is, i dont think falling for 0201 is a good thing
+https://twitter.com/MoonLIsGood/status/1676928170854076416
+https://twitter.com/MoonLIsGood/status/1676926771428732928
+https://twitter.com/MoonLIsGood/status/1676925869548531713
+SHE IS SO FRIENDLY THAT SHE HAS TOO MUCH FRIEND THATS BOY, WHY IS YOUR FREAKING PESAING ALWAYS NAME D..., FUCCCCCCCCCCCCCCCCCCCCCC
+I EITHER NEED A FUCKING TIME MACHINE OR A BRAINWASHER MACHINE TO MAKE ME FORGET THAT I LIKE HER, HELL I WOULD PREFER NOT TO LIKE HER AT THE FIRST PLACE, I NEED A TIME TO THINK, I CANT THINK OF ANYSHIT RN
+ALLRIGHT THATS IT REL, WE ARE DOING THE MISSION OF "NOT FALLING DEEPER BUT MORE KE ATAS SIH RELL, DONT FALL TOO DEEP, NANTI KAYAK 812
+
+
+if you ever feel like wanting to kinda curhat but dont know how, just write it all out here rel, actually ill put it on the top
+- Farrel 7/6/2023
 
 
 
