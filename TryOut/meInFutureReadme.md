@@ -48,11 +48,18 @@ https://twitter.com/MoonLIsGood/status/1676926771428732928
 https://twitter.com/MoonLIsGood/status/1676925869548531713
 SHE IS SO FRIENDLY THAT SHE HAS TOO MUCH FRIEND THATS BOY, WHY IS YOUR FREAKING PESAING ALWAYS NAME D..., FUCCCCCCCCCCCCCCCCCCCCCC
 I EITHER NEED A FUCKING TIME MACHINE OR A BRAINWASHER MACHINE TO MAKE ME FORGET THAT I LIKE HER, HELL I WOULD PREFER NOT TO LIKE HER AT THE FIRST PLACE, I NEED A TIME TO THINK, I CANT THINK OF ANYSHIT RN
-ALLRIGHT THATS IT REL, WE ARE DOING THE MISSION OF "NOT FALLING DEEPER BUT MORE KE ATAS SIH RELL, DONT FALL TOO DEEP, NANTI KAYAK 812
+ALLRIGHT THATS IT REL, WE ARE DOING THE MISSION OF "NOT FALLING DEEPER BUT MORE KE ATAS SIH RELL, DONT FALL TOO DEEP, NANTI KAYAK 812"
 
 
 if you ever feel like wanting to kinda curhat but dont know how, just write it all out here rel, actually ill put it on the top
 - Farrel 7/6/2023
+
+its been exactly 11 month since your last commit, ahahahah you fucking nailed it, for summaries, we've been in hts on 8-9/x/2023, basicly tgl 5 september, abis lo ke bandung, lo punya adik skrng relll!!!! nama dia fanyaa!!! dia lucu bgt, adik terbaik!!!, tp yaaa somehow manusia itu ga mau, gua jg tau kenapa sih, ga mau gua ga fokus ke dia, tp ya gpp, on the bright side lo dapet adik yg baikk bgt, dan lo sadar kalo dia ini BUKAN YANG TERBAIK buat lo, ikhlasin bahwasalnya lo udah ngehabisin 10 bulan buat kesia siaan, atleast you know how to treat a women now!, disapointed ? yes tapi... want to get back ? hell no. gua ga mau sama orang ini lagi, she has a bf now, and you know how it is, lets hope he is okay lmaooo
+dear farrel 7/6/2023
+operation `NOT FALLING DEEPER BUT MORE KE ATAS SIH RELL, DONT FALL TOO DEEP, NANTI KAYAK 812` failed, retreat
+
+a lot thing has happened and i dont wish it to happened again, you are not ready to fall in love again, jgn cari pelarian woi farrel!!
+- Farrel 6/12/2024
 
 
 
